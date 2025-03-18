@@ -3,7 +3,7 @@
 
 ### A little about me:
 
-• I am undertaking a degree in Chinese and Statistics
+• I am undertaking a degree in **Science** and **Arts** majoring in *Statistics* and *Chinese*
 
 • I am taking STATS 220 because my major is statistics 
 
